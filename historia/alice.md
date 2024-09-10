@@ -1,3 +1,0 @@
-# Historia de Alice
-
-Alice Abernathy es un personaje ficticio de la franquicia cinematográfica de imagen real Resident Evil, donde se destaca por ser la heroína principal y protagonista de la misma. A pesar de que no apareció en ningún videojuego de la franquicia, ella finalmente interactúa con un considerable número de personajes de los videojuegos de la saga Resident Evil, como Jill Valentine, Carlos Oliveira, Claire Redfield, Nemesis, Chris Redfield, Ada Wong, Leon S. Kennedy, Barry Burton y Albert Wesker. La historia transcurre alrededor de ella y su lucha contra la Corporación Umbrella y, posteriormente el presidente de la compañía (Albert Wesker).
